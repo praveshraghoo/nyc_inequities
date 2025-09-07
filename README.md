@@ -1,0 +1,1 @@
+This is a collaborative project to assess how well NYC’s environmental policy efforts have enacted environmental justice by determining whether the policies are improving environmental quality and if the environmentally friendly policies and resources are distributed in accordance with environmental justice principles.  You can contact me for any questions.
